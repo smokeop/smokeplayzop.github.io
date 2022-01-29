@@ -1,3 +1,3 @@
-Made by SMOK3Playz <p>
+Made by SmokiePlayZ <p>
   https://smokeplayz.cf
   
